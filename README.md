@@ -1,1 +1,1 @@
-# rollingstone-cover-story-michael-b-jordan
+https://shoneal.github.io/rollingstone-cover-story-michael-b-jordan/
